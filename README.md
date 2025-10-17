@@ -47,6 +47,14 @@ Rectifier with filter
 
 WAVEFORM:
 
+![WhatsApp Image 2025-10-17 at 08 39 50_92e5623e](https://github.com/user-attachments/assets/956b6a5e-e672-4db7-9335-59b1ec60f0f5)
+![WhatsApp Image 2025-10-17 at 08 40 26_a19c1e3a](https://github.com/user-attachments/assets/a3eadc1d-2ada-4028-ac5d-f3d4f65c4dbd)
+![WhatsApp Image 2025-10-17 at 08 40 43_4a25735e](https://github.com/user-attachments/assets/03cb8777-e9dd-4f6f-aaf7-062eb9a354b8)
+![WhatsApp Image 2025-10-17 at 08 40 51_6c1e4cea](https://github.com/user-attachments/assets/477252a3-eb8b-4c6d-9084-e78ea8fb5e35)
+![WhatsApp Image 2025-10-17 at 08 41 11_bc674785](https://github.com/user-attachments/assets/3142b4f7-847a-4073-a3b6-cfd34a77f7c9)
+![WhatsApp Image 2025-10-17 at 08 41 27_664614c6](https://github.com/user-attachments/assets/db4e29df-f1f8-4e0f-9356-4626c383e31a)
+![WhatsApp Image 2025-10-17 at 08 41 43_b6d19db7](https://github.com/user-attachments/assets/623aecb4-1cf4-4a34-8c81-f3071b29fc89)
+
 
 RESULT:
 
